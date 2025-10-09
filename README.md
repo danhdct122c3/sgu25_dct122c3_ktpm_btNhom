@@ -1,1 +1,0 @@
-# sgu25_dct122c3_ktpm_btNhom
